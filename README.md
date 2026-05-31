@@ -74,7 +74,7 @@ Email:
 [talentbridgeitsolutions.hr@gmail.com](mailto:talentbridgeitsolutions.hr@gmail.com)
 
 LinkedIn:
-https://linkedin.com/company/talentbridge-it-solutions
+
 
 ---
 
